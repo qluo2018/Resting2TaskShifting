@@ -1,0 +1,1 @@
+covariance data avilable upon request to Peter Liddle
